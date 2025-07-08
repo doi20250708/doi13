@@ -10,4 +10,4 @@
 
 本页面专注分享麻豆传媒相关优质片源，涵盖人妻剧情、无码大片与高质量国产原创内容。所有影片均可在线高清流畅播放，支持手机与电脑端访问，无广告干扰。每日实时更新，适合喜欢剧情演绎与真实表演的用户深度浏览。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi13 ）</span>
